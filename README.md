@@ -1,4 +1,3 @@
 # MrDragonReposiory
 Coooooool
-Im cool and have alot of friends and i train kajak
-Im 12 zears old
+ja sam u 5 razredu u 4 odeljenju u skoli Nata Jelicic 
